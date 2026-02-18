@@ -1,3 +1,3 @@
 Bybit Solana On Byreal Challenging 
 
-Just Profit it
+Just Profits it
